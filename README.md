@@ -1,9 +1,9 @@
 # Asyabahis Hoş Geldin! 🚀 Güncel Giriş Linki ve Bahis Fırsatları Burada! 🎉
 
-# [Asyabahis Giriş İçin Tıklayınız](https://t.ly/IsLRQ)
-# [Asyabahis Giriş İçin Tıklayınız](https://t.ly/IsLRQ)
-# [Asyabahis Giriş İçin Tıklayınız](https://t.ly/IsLRQ)
-# [Asyabahis Giriş İçin Tıklayınız](https://t.ly/IsLRQ)
+# [Asyabahis Giriş İçin Tıklayınız](https://cutt.ly/EreytWq9)
+# [Asyabahis Giriş İçin Tıklayınız](https://cutt.ly/EreytWq9)
+# [Asyabahis Giriş İçin Tıklayınız](https://cutt.ly/EreytWq9)
+# [Asyabahis Giriş İçin Tıklayınız](https://cutt.ly/EreytWq9)
 
 <br>
 
